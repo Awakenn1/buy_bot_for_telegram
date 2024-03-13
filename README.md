@@ -12,7 +12,7 @@
 
 ---------------------------------------------------------------------------------------------------------------
 
-✅ FULL source codes of "https://t.me/SolanaTradingBot"!
+✅ FULL source codes of "https://t.me/buytech"!
 
 ✅ Works on Telegram!
 
